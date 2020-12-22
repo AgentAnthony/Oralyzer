@@ -1,5 +1,3 @@
-<img src="https://i.ibb.co/pR55wPZ/g882.png">
-
 ### Introduction
 
 
